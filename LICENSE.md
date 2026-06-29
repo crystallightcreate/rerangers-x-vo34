@@ -1,4 +1,4 @@
-# 
+# Experience re:rangers x like never before with re:rangers x Script automatic, the #1 Script. Includes auto-collect and teleport for unbeatable
 
 
 
